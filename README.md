@@ -1,3 +1,7 @@
-yes the url is a nod to the broken script
-<br> yes im about to theme this thing around no_moon.jar
-<br> no you cant stop me
+
+
+
+<p align="center">
+  < WANT TO KNOW WHAT HAPPENED TO THEM? >
+    <br> <br>
+<img src="https://file.garden/ZfRta4uUh3asFRHD/HP96eP6W8AExgBn.jpg" width="700" />

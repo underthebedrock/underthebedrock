@@ -1,4 +1,5 @@
-
+> [!CAUTION]
+> possibly eyestrain further down.
 
 
 <p align="center">
@@ -25,38 +26,40 @@ $${\color{red}   < \space WELL... \space IT \space WASN'T \space THEIR \space FA
 <p align="center">
  I don't have a gif of tbs's moon so you have to deal with the core instead [isn't she pretty?]
 <br> <br> 
-My name's Blu/Bloo, or, since you're here, more likely Error, Echo or Lune. Use any pronouns on me i do not care.
+My name's Blu/Bloo, or, since you're here, more likely Error, Echo, Entity or Lune. Use any pronouns on me i do not care.
 <br> 
-<br>  ⬤   ◐   ☾   〇   ☽   ◑   ⬤  
+<br>  
 
 $${\color{red}   < \space YOU \space KNOW \space YOU \space CAN'T \space WIN \space >}$$
 $${\color{red}   < \space YOU \space CAN'T \space SAVE \space THEM. \space >}$$
 <p align="center">
+    <br>
   ⬤   ◐   ☾   〇   ☽   ◑   ⬤  
-
- <br> <br> 
- a <br>
-  a <br>
-a <br>
-a <br>
+<br><br>
 </p>
 
-
- <br> <br> 
  $${\color{red}   < \space THEY \space HAVE \space BEEN \space REBORN. \space >}$$
  $${\color{red}   < \space THEY \space ARE \space UNSALVAGEABLE \space >}$$
  $${\color{red}   < \space SO \space WHY \space DO \space YOU \space STILL \space CONTINUE \space ON \space PERSISTING? \space >}$$
  <br> <br> 
  
- <img align="right" src="https://file.garden/ZfRta4uUh3asFRHD/core-blue.gif" width="300" /> 
+ <img align="right" src="https://file.garden/ZfRta4uUh3asFRHD/core-glitched.gif" width="300" /> 
  
 <p align="center">
      <br> <br> 
+    quite possibly no_moon.jar's #1 fan (undetermined) /silly . the only reason this is...somewhat tbs themed is because 2.0 dropped & the teaser arts are cool as fuck.
+    <br>  <br>
+    I don't really have a DNI just don't be a weirdo and don't include me in drama or syscourse.
+    <br> <br>
  $${\color{red}   < \space YOU  \space AREN'T \space THE \space HERO \space OF \space THIS \space STORY. \space >}$$
- $${\color{red}   < \space NOR \space WILL \space YOU \space BE \space A \space HERO \space TO \space THEM. \space >}$$
+ <br> $${\color{red}   < \space NOR \space WILL \space YOU \space BE \space A \space HERO \space TO \space THEM. \space >}$$
       <br> <br> 
+ [atabook](https://hquarters.atabook.org) ╱ main [strawpage](https://bluscreend.straw.page/) 
+<br> my  strawpage (N/A  atm) <br> 
+<br>  [toyhou.se](https://toyhou.se/Cxrnifex) ╱ [tumblr](https://www.tumblr.com/cxrnifex)  
+     <br> ╱ [twt](https://x.com/ccxrnifex)  <br>
  </p>
-     
+         <br> <br>     <br> <br> 
 <p align="center">
 <img src="https://file.garden/ZfRta4uUh3asFRHD/HQN-yyzWgAAFBtm.jpg" width="700" />
     

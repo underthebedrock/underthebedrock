@@ -49,7 +49,7 @@ $${\color{red}   < \space YOU \space CAN'T \space SAVE \space THEM. \space >}$$
      <br> <br> 
     quite possibly no_moon.jar's #1 fan (undetermined) /silly . the only reason this is...somewhat tbs themed is because 2.0 dropped & the teaser arts are cool as fuck.
     <br>  <br>
-    I don't really have a DNI just don't be a weirdo and don't include me in drama or syscourse.
+    I don't really have a DNI just don't be a weirdo and don't include me in drama or syscourse. And if you call me underscore i will have your head. /J
     <br> <br>
  $${\color{red}   < \space YOU  \space AREN'T \space THE \space HERO \space OF \space THIS \space STORY. \space >}$$
  <br> $${\color{red}   < \space NOR \space WILL \space YOU \space BE \space A \space HERO \space TO \space THEM. \space >}$$

@@ -53,11 +53,9 @@ $${\color{red}   < \space YOU \space CAN'T \space SAVE \space THEM. \space >}$$
     <br> <br>
  $${\color{red}   < \space YOU  \space AREN'T \space THE \space HERO \space OF \space THIS \space STORY. \space >}$$
  <br> $${\color{red}   < \space NOR \space WILL \space YOU \space BE \space A \space HERO \space TO \space THEM. \space >}$$
-      <br> <br> 
- [atabook](https://hquarters.atabook.org) ╱ main [strawpage](https://bluscreend.straw.page/) 
-<br> my  strawpage (N/A  atm) <br> 
-<br>  [toyhou.se](https://toyhou.se/Cxrnifex) ╱ [tumblr](https://www.tumblr.com/cxrnifex)  
-     <br> ╱ [twt](https://x.com/ccxrnifex)  <br>
+<br> <br> <br>
+<a href="https://hquarters.atabook.org/">atabook</a> /  <a href="https://bluscreend.straw.page/">main strawpage</a> / <a href="https://findthemoon.straw.page/">my strawpage</a> (UNDECORATED ATM)
+     
  </p>
          <br> <br>     <br> <br> 
 <p align="center">
@@ -67,3 +65,5 @@ $${\color{red}   < \space YOU \space CAN'T \space SAVE \space THEM. \space >}$$
      
 $${\color{red}   < \space YOU \space SAVED \space NO \space ONE, \space FAREWELL.\space >}$$
 </p>
+
+[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/track/5ZVHPvGAX2ntxSUvHhxa94)

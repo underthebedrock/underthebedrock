@@ -66,4 +66,6 @@ $${\color{red}   < \space YOU \space CAN'T \space SAVE \space THEM. \space >}$$
 $${\color{red}   < \space YOU \space SAVED \space NO \space ONE, \space FAREWELL.\space >}$$
 </p>
 
-[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/track/5ZVHPvGAX2ntxSUvHhxa94)
+SONG : LOV3M1ST - INSTABILITY (V3)
+<br>
+ART : ALTERNATE_BENNY (TBS LEAD ARTIST) & WENTWORTH (NO_MOON.JAR DEVELOPER)

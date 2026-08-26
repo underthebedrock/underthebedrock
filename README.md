@@ -68,4 +68,4 @@ $${\color{red}   < \space YOU \space SAVED \space NO \space ONE, \space FAREWELL
 
 SONG : LOV3M1ST - INSTABILITY (V3)
 <br>
-ART : ALTERNATE_BENNY (TBS LEAD ARTIST) & WENTWORTH (NO_MOON.JAR DEVELOPER)
+ART : ALTERNATE_BENNY (TBS LEAD ARTIST) & WENTWORTH (NO_MOON.JAR DEVELOPER) (I have no idea if they're the actual artists but they're atleast related)

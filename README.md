@@ -6,7 +6,7 @@
 
 <p align="center">
     
-$${\color{red}   < \space insert \space lyrics \space here \space > \space >}$$
+$${\color{red}   < \space insert \space lyrics \space here \space > }$$
 
 
  <br>
@@ -18,7 +18,8 @@ $${\color{red}   < \space insert \space lyrics \space here \space > \space >}$$
 <img  src="https://file.garden/ZfRta4uUh3asFRHD/HP96eP6W8AExgBn.jpg" width="700" />
 
 </p>
-$${\color{red}   < \space insert \space lyrics \space here \space > \space >}$$
+
+$${\color{red}   < \space insert \space lyrics \space here \space >}$$
   
   <br>
   
@@ -31,7 +32,8 @@ My name's Blu/Bloo, or, since you're here, more likely Error, Echo, Entity or Lu
 <br> 
 <br>  
 
-$${\color{red}   < \space insert \space lyrics \space here \space > \space >}$$
+$${\color{red}   < \space insert \space lyrics \space here \space > }$$
+
 <br>
 <p align="center">
     <br>
@@ -39,7 +41,8 @@ $${\color{red}   < \space insert \space lyrics \space here \space > \space >}$$
 <br><br>
 </p>
 
- V$${\color{red}   < \space insert \space lyrics \space here \space > \space >}$$
+ V$${\color{red}   < \space insert \space lyrics \space here \space > }$$
+ 
  <br> <br>
  <br> <br> 
  
@@ -64,7 +67,7 @@ $${\color{red}   < \space insert \space lyrics \space here \space > \space >}$$
 
  <br>
 
-$${\color{red}   < \space insert \space lyrics \space here \space > \space >}$$ 
+$${\color{red}   < \space insert \space lyrics \space here \space >}$$ 
 </p>
 
 SONG: no...

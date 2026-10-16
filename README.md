@@ -41,7 +41,7 @@ $${\color{red}   < \space insert \space lyrics \space here \space > }$$
 <br><br>
 </p>
 
- V$${\color{red}   < \space insert \space lyrics \space here \space > }$$
+ $${\color{red}   < \space insert \space lyrics \space here \space > }$$
  
  <br> <br>
  <br> <br> 

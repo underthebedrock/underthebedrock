@@ -6,7 +6,7 @@ im. lazy.
 <br>
 <br>
 
-<img align="center" src="https://file.garden/ZfRta4uUh3asFRHD/IMG_01793crop.png" />
+<img align="center" src="https://file.garden/ZfRta4uUh3asFRHD/IMG_01793crop(1).png" />
 
 <br>
 <br>

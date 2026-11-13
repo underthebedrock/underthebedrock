@@ -1,5 +1,6 @@
 
-<img align="center" src="https://file.garden/ZfRta4uUh3asFRHD/IMG_01842(2).png" width="500" />
+<img src="https://file.garden/ZfRta4uUh3asFRHD/IMG_01842(2).png" width="500" align="left" />
+<img src="https://file.garden/ZfRta4uUh3asFRHD/IMG_01842(2).png" width="500" align="right" />
 
 <br>
 <br>
